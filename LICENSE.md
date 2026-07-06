@@ -1,4 +1,4 @@
-# 
+# Top IObit Uninstaller presets for Mac OS | Advanced IObit Uninstaller presets for PC Windows. Featuring gaming mode and registry optimization — optimized for maximum performance on every platform.
 
 
 
